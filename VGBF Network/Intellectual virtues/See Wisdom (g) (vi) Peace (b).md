@@ -1,0 +1,6 @@
+See [Wisdom (g) (vi) Peace (b)](obsidian://open?vault=Obsidian&file=VGBF%20Network%2FGifts%2FWisdom%20(g)%20(vi)%20Peace%20(b)).
+$\qquad$
+
+
+
+

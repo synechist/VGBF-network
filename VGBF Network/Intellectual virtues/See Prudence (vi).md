@@ -1,0 +1,1 @@
+See [Prudence (vi)](obsidian://open?vault=Obsidian&file=VGBF%20Network%2FCardinal%20Virtues%2FPrudence%20(vi)).

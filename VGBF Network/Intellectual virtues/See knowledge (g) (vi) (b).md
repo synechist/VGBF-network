@@ -1,0 +1,1 @@
+See [Knowledge (g) (vi) (b)](obsidian://open?vault=Obsidian&file=VGBF%20Network%2FGifts%2FKnowledge%20(g)%20(vi)%20(b)).

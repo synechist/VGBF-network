@@ -1,0 +1,1 @@
+See [Understanding (g) (b) (vi) (vm)](obsidian://open?vault=Obsidian&file=VGBF%20Network%2FGifts%2FUnderstanding%20(g)%20(b)%20(vi)%20(vm)).

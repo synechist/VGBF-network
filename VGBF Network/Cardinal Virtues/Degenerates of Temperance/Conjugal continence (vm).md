@@ -1,0 +1,1 @@
+Conjugal continence (vm): first degree of virtue, signified by the thirtyfold unit in Matthew 13:23 (Part 1-2, q70, a3, rep obj 2)
